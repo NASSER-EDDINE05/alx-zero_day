@@ -1,1 +1,1 @@
-My first readme udapte and copy
+My first readme udapted copy
